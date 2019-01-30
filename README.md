@@ -1,2 +1,6 @@
 # grupo_2-
-trabaj en grupo 
+trabaj en grupo }
+
+
+mira que ya puedo escribir :D 
+
